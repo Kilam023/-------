@@ -1,4 +1,4 @@
-# insane-nightmare
+# sikret_projekt
 
 3rRoR 404
 ENTRY NUMBER 01: CREATION OF THE EXPERIMENT.
